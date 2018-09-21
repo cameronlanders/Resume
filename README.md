@@ -3,4 +3,4 @@ Cameron Landers is a freelance software engineer and technical consultant with m
 
 Due to multiple client commitments, Cameron takes on project work that is done remotely, rather than on-premise. Initial on-premise planning sessions can be accommodated if needed. 
 
-Please feel free to view or download Cameron's resume here.
+CLick the .PDF file above to view or download Cameron's resume here.
